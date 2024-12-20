@@ -1,1 +1,1 @@
-# https://google.com
+# [白川教の皆様はこちら](https://google.com)
