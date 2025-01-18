@@ -1,1 +1,1 @@
-# [白川教の皆様はこちら](https://sites.google.com/wakkanai.ed.jp/sirakawakyou)
+# [白川教の皆様はこちら](https://google.com)
